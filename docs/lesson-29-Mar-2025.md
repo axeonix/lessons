@@ -48,7 +48,7 @@
   
   **Mercy: Not getting what we do deserve**
 
-  **Mercy** is when God ***withholds*** punishment that we ***rightly deserve**** because of our sin.
+  **Mercy** is when God ***withholds*** punishment that we ***rightly deserve*** because of our sin.
 
   - Mercy is compassion in action toward someone in misery or distress caused by their own wrongdoing
   - Mercy emphasizes God's restraint.

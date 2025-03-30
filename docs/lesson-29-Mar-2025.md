@@ -14,7 +14,7 @@
   - **Thessalonica**   
     - We read in Acts 17 how it was founded.
     - Paul faced persecution there, but many Jews and Gentiles came to faith.
-    - In **1 Thessalonians 1* we see that the Thessalonian church endured suffering but remained faithful
+    - In **1 Thessalonians 1** we see that the Thessalonian church endured suffering but remained faithful
     - We know that it was a very poor church
   - **Berea**
     - Also mentioned in Acts 17.

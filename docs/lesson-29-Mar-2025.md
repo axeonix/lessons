@@ -86,7 +86,7 @@
 - …it comes from a clear understanding of everything we have and who we are in Christ Jesus.
 - Clearly their HOPE was not in wealth…otherwise, given their extreme poverty, they would have felt overflowing desperation and not “overflowing joy”…
 
-  Nazia please read once again **2 Corinthians 8:9**: 
+  Please read once again **2 Corinthians 8:9**: 
   > 9 For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.
 
   - The foundation of all Christian giving isn’t guilt or obligation — it’s **the example of Jesus**.

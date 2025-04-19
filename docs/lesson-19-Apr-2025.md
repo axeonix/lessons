@@ -107,4 +107,4 @@ So let’s be living sacrifices—holy, acceptable, and fully surrendered. Beca
 
 God Bless you all in The Mighty Name of Jesus Christ of Nazareth.
 
-**Pray for Communion**
+### Pray for Communion

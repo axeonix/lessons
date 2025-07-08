@@ -138,7 +138,8 @@ This will be a visible, glorious event for all to see.
 
 ### Second Coming: Will happen after certain events (e.g., rise of Antichrist). “He sets himself up in God’s temple…”
 
-**2 Thessalonians 2:4** He will oppose and will exalt himself over everything that is called God or is worshiped, so that he sets himself up in God’s temple, proclaiming himself to be God.
+**2 Thessalonians 2:4** 
+> He will oppose and will exalt himself over everything that is called God or is worshiped, so that he sets himself up in God’s temple, proclaiming himself to be God.
 
 IF YOU ARE NOT WITH CHRIST AT THE TIME OF THE RAPTURE — THERE IS STILL HOPE: If you are left behind after the Rapture, there is still hope — but it will be a time of intense suffering during the Great Tribulation.
 

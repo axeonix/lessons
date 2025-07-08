@@ -123,7 +123,8 @@ This will be a visible, glorious event for all to see.
 
 ### Hidden vs. Seen by All: Rapture: Happens suddenly and invisibly. “In the twinkling of an eye…” 
 
-**1 Corinthians 15:52** In a flash, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, the dead will be raised imperishable, and we will be changed.
+**1 Corinthians 15:52** 
+> In a flash, in the twinkling of an eye, at the last trumpet. For the trumpet will sound, the dead will be raised imperishable, and we will be changed.
 
 ### Second Coming: Every eye will see Him. “Look, He is coming with the clouds, and every eye will see Him…” 
 

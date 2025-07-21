@@ -1,5 +1,5 @@
 
-# 12-Jul-2025: From Pride to Praise: The Journey of King Nebuchadnezzar (Revelations 19:9)
+# 12-Jul-2025: From Pride to Praise: The Journey of King Nebuchadnezzar (Daniel 4)
 
 **Opening Prayer**
 

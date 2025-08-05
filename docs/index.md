@@ -10,4 +10,5 @@
 | 28-Jun-2025: | [The Rapture is Followed by the Judgment of Christians (2 Corinthians 5:10)](lesson-28-Jun-2025.md) |
 | 05-Jul-2025: | [Crowns in the Bible](lesson-05-Jul-2025.md) |
 | 12-Jul-2025: | [From Pride to Praise: The Journey of King Nebuchadnezzar (Daniel 4)](lesson-12-Jul-2025.md) |
-| 10-Jul-2025: | [God’s Final Witnesses: The Two Prophets of Revelation](lesson-19-Jul-2025.md) |
+| 19-Jul-2025: | [God’s Final Witnesses: The Two Prophets of Revelation](lesson-19-Jul-2025.md) |
+| 02-Aug-2025: | [The Mysterious Origin of Satan’s Fall: The First Sin in the Universe](lesson-02-Aug-2025.md) |

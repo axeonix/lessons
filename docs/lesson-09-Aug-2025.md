@@ -110,19 +110,19 @@ Nazia would you please read Galatians 5:7-8?
 
 - I would describe this as a kind of "religious" manifestation of "the flesh".
 - What do I mean by that?
-- This is where those "acts" or "misdeeds" of "the flesh" are cleaned up in the life of a Christian and therefore "the outside" might look OK.
-- Here a Christian is striving to live a life they think is pleasing to God BUT for some reason they do not feel joy but instead that it is a burden.
-- Here there may start to appear in the life of a Christian self-rightousness or criticalness towards other Christians or towards non-believers 
+  - This is where those "acts" or "misdeeds" of "the flesh" are cleaned up in the life of a Christian and therefore "the outside" might look OK.
+  - Here a Christian is striving to live a life they think is pleasing to God BUT for some reason they do not feel joy but instead that it is a burden.
+  - Here there may start to appear in the life of a Christian self-rightousness or criticalness towards other Christians or towards non-believers 
 - What has happened?
   - We've begun to strive in our own self-will or self-power to make changes. 
   - Here a Christian may start to feel powerless and that the are not changes in their life.
   - Here a self-reliance has entered in and the focus has become more about us than about God.  
 
-What are we to do if this is the case for us?
-- Acknowledge and confess to God that we recognize and see this in our lives.
-- Put our eyes and our focus back onto Christ Jesus our Lord.
-- Return to the realization that only Christ Jesus and the power of the Holy Spirit can change us.
-- Recognize that our flesh has no power to change us.
+- What are we to do if this is the case for us?
+  - Acknowledge and confess to God that we recognize and see this in our lives.
+  - Put our eyes and our focus back onto Christ Jesus our Lord.
+  - Return to the realization that only Christ Jesus and the power of the Holy Spirit can change us.
+  - Recognize that our flesh has no power to change us.
 
 ## Communion:
 
@@ -131,7 +131,7 @@ As we prepare to take communion reflect on the following:
 - Am I genuinely working to put to death the "misdeeds of the flesh" by leaning on Christ for help?  
 - At this moment in my life am I living more a life "in the flesh" or a life "in the Spirit"? 
 
-Whatever your answer may be, during communion remember the incredible love God has for you. Each day he waits for you to return to Him for the help that ONLY HE can provide.
+Whatever your answers take them to the Father during communion and remember his love as shown through Christ. His incredible love for you. Each day he waits for you to return to Him for the help that ONLY HE can provide.
 
 **Nazia to pray for communion.**
 

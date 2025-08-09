@@ -7,8 +7,6 @@
 
 Nazia, would you please read Romans 8:1-17?
 
-
-
 **Romans 8:1-17**
 > 8 Therefore, there is now no condemnation for those who are in Christ Jesus, 2 because through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death. 3 For what the law was powerless to do because it was weakened by the flesh, God did by sending his own Son in the likeness of sinful flesh to be a sin offering. And so he condemned sin in the flesh, 4 in order that the righteous requirement of the law might be fully met in us, who do not live according to the flesh but according to the Spirit.
 >
@@ -19,8 +17,6 @@ Nazia, would you please read Romans 8:1-17?
 > 12 Therefore, brothers and sisters, we have an obligation — but it is not to the flesh, to live according to it. 13 For if you live according to the flesh, you will die; but if by the Spirit you put to death the misdeeds of the body, you will live.
 >
 > 14 For those who are led by the Spirit of God are the children of God. 15 The Spirit you received does not make you slaves, so that you live in fear again; rather, the Spirit you received brought about your adoption to sonship. And by him we cry, “Abba, Father.” 16 The Spirit himself testifies with our spirit that we are God’s children. 17 Now if we are children, then we are heirs — heirs of God and co-heirs with Christ, if indeed we share in his sufferings in order that we may also share in his glory.
-
-In this key verse we see several 
 
 ## Reason for Great Joy
 

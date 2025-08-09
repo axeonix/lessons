@@ -1,5 +1,5 @@
 
-# 02-Aug-2025: The Mysterious Origin of Satan’s Fall: The First Sin in the Universe (Revelations 11:3-12)
+# 02-Aug-2025: The Mysterious Origin of Satan’s Fall: The First Sin in the Universe
 
 **Opening Prayer**
 

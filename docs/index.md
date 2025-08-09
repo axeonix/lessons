@@ -12,3 +12,4 @@
 | 12-Jul-2025: | [From Pride to Praise: The Journey of King Nebuchadnezzar (Daniel 4)](lesson-12-Jul-2025.md) |
 | 19-Jul-2025: | [God’s Final Witnesses: The Two Prophets of Revelation](lesson-19-Jul-2025.md) |
 | 02-Aug-2025: | [The Mysterious Origin of Satan’s Fall: The First Sin in the Universe](lesson-02-Aug-2025.md) |
+| 09-Aug-2025: | [Life Through the Spirit (Romans 8:1-17)](lesson-02-Aug-2025.md) |

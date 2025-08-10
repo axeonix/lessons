@@ -74,6 +74,7 @@ Going back to our main passage today...Paul states in verse 12 of Romain 8 that 
   - These sins are obvious. Paul in Romans calls them the "misdeeds" of the body and in his other letter to the Galatians describes them as "acts of the sinful nature" (or flesh) 
 
 Nazia, please read if you would:
+
 **Romans 6:1-4**
 > 6 What shall we say, then? Shall we go on sinning so that grace may increase? 2 By no means! We are those who have died to sin; how can we live in it any longer? 3 Or don’t you know that all of us who were baptized into Christ Jesus were baptized into his death? 4 We were therefore buried with him through baptism into death in order that, just as Christ was raised from the dead through the glory of the Father, we too may live a new life.
 

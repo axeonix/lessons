@@ -89,7 +89,8 @@ Jesus and the Fear of the Lord: Even Jesus — the sinless Son of God — walked
 **Isaiah 11:1–3** 
 > The Sevenfold Spirit of God. “The Spirit of the LORD shall rest upon Him… the Spirit of wisdom and understanding, the Spirit of counsel and might, the Spirit of knowledge and of the fear of the LORD. His delight is in the fear of the LORD…”
 
-- This sevenfold anointing reveals the fullness of the Holy Spirit in Jesus’ life. And the final, crowning manifestation is: the fear of the Lord. If Jesus delighted in the fear of the Lord, how can we claim we don’t need it?
+- This sevenfold anointing reveals the fullness of the Holy Spirit in Jesus’ life. And the final, crowning manifestation is: the fear of the Lord. 
+- If Jesus delighted in the fear of the Lord, how can we claim we don’t need it?
 - To reject the fear of the Lord is to exalt ourselves above Jesus. That’s not just error — that’s arrogance. 
 - We must follow His example in every way — including the way He walked in holy reverence and obedience to the Father.
 

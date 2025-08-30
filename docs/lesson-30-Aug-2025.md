@@ -28,11 +28,11 @@ So let me ask you honestly:
 - It’s not demonic fear, the tormenting spirit mentioned in **2 Timothy 1:7**. That fear has torment (**1 John 4:18**), and it’s from the enemy, not from God. 
 - It’s not fear of man — in fact, The Fear of The Lord delivers us from the fear of man. 
 
-**Psalm 146:3-7**
+**Psalm 146:3-4**
 > Don't put your trust in human leaders; no human being can save you. When they die, they return to the dust; on that day all their plans come to an end.
 
 **Psalm 146:3-7**
-> Do not put your trust in princes, in human beings, who cannot save. When their spirit departs, they return to the ground; on that very day their plans come to nothing. Blessed are those whose help is the God of Jacob, whose hope is in the Lord their God. He is the Maker of heaven and earth, the sea, and everything in them — he remains faithful forever. He upholds the cause of the oppressed and gives food to the hungry. The Lord sets prisoners free,
+> "Do not put your trust in princes, in human beings, who cannot save. When their spirit departs, they return to the ground; on that very day their plans come to nothing. Blessed are those whose help is the God of Jacob, whose hope is in the Lord their God. He is the Maker of heaven and earth, the sea, and everything in them — he remains faithful forever. He upholds the cause of the oppressed and gives food to the hungry. The Lord sets prisoners free," - (NIV)
 
 - What the Fear of the Lord Is: A deep reverence and awe for God’s Holiness. 
 - A hatred for evil and sin:

@@ -98,7 +98,9 @@ Conditions to Receive the Fear of the Lord:
 
 - The fear of the Lord isn’t automatic. It doesn’t come by accident. 
 - There are conditions we must meet. It is not just a feeling or a theological concept  it’s a spiritual atmosphere we enter through humility, hunger, and obedience.
-- Here lies the truth we must carry in our hearts: The fear of the Lord is God’s treasure. He gives it to those who seek Him, honor Him, and humble themselves before Him.
+- Here lies the truth we must carry in our hearts: 
+  - The fear of the Lord is God’s treasure. 
+  - He gives it to those who seek Him, honor Him, and humble themselves before Him.
 
 ## The Fear of the Lord - A Treasure to Seek
 

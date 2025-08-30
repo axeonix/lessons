@@ -111,35 +111,42 @@ The fear of the Lord must be taught:
 - It is not automatic. It requires listening, humility, and openness to the Holy Spirit. It's Manifested in Our Speech. The first evidence of fearing God is in how we use our tongue (**Psalm 34**).
 
 - Check your speech: is it arrogant, bitter, impatient — or reverent, careful, and life-giving? 
-- We must choose it: 
+
+We must choose it: 
   - **Proverbs 1:29**: 
     > “They did not choose the fear of the Lord.”
 - It’s a choice. God won’t force it upon us. But to reject it brings consequences.
 
-- It cannot coexist with evil or pride: 
+It cannot coexist with evil or pride: 
   - **Proverbs 3:7**: 
     > “Fear the Lord and depart from evil.” If we cling to pride or sin, we disqualify ourselves from truly walking in the fear of the Lord.
-- It's the gateway to wisdom: 
+
+It's the gateway to wisdom: 
   - **Job 28:28**: 
     > “Behold, the fear of the Lord is wisdom, and to depart from evil is understanding.”
 - Wisdom isn’t cleverness. It’s rooted in Holy Reverence and a deep respect for God’s Authority. 
-- God shares secrets with those who fear Him.
+
+God shares secrets with those who fear Him.
   - **Psalm 25:14**: 
     > “The secret of the Lord is with those who fear Him.”
-- The fear of the Lord leads to intimacy with God, not distance. It Strengthens Marriages and Families. 
+    
+The fear of the Lord leads to intimacy with God, not distance. It Strengthens Marriages and Families. 
   - **Ephesians 5:21**: 
     > “Submitting to one another in the fear of God.”
 - A Godly marriage thrives on mutual submission under God’s authority. 
-- It Prolongs Life and Gives Peace:
+
+It Prolongs Life and Gives Peace:
   - **Proverbs 10:27**: 
     > “The fear of the Lord prolongs days.” 
   - **Proverbs 19:23**: 
     > “The fear of the Lord leads to life, satisfaction, and protection.”
-- The Holy Spirit Imparts It: 
+
+The Holy Spirit Imparts It: 
   - **Isaiah 11:2–3**: 
     > Jesus Himself delighted in the fear of the Lord.
 - It’s a manifestation of the Holy Spirit, not something we produce on our own. 
-- There Are Conditions to Receive It:
+
+There Are Conditions to Receive It:
   - **Proverbs 2:1–5**: 
     > My son, if you accept my words and store up my commands within you, turning your ear to wisdom and applying your heart to understanding — indeed, if you call out for insight and cry aloud for understanding, and if you look for it as for silver
     and search for it as for hidden treasure, then you will understand the fear of the Lord and find the knowledge of God.

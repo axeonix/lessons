@@ -163,7 +163,7 @@ Many Christians are spiritually malnourished because they’ve rejected the fear
 - Why? What did He see in us that made such a sacrifice worth it?
 - Jesus saw treasure and that treasure is you and me. 
 
-Jesus tells two short but powerful parables in 
+Jesus tells two short but powerful parables in: 
 
 **Matthew 13:44–46**: 
 > “The kingdom of heaven is like treasure hidden in a field. When a man found it, he hid it again, and then in his joy went and sold all he had and bought that field.

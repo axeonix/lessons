@@ -16,3 +16,4 @@
 | 16-Aug-2025: | [The Parable of the Ten Virgins (Matthew 25:1-13)](lesson-16-Aug-2025.md) |
 | 23-Aug-2025: | [What They Don't Want You To Know About a Seared Conscience (Romans 8:1-17)](lesson-23-Aug-2025.md) |
 | 30-Aug-2025: | [What Does It Mean To Fear God?](lesson-30-Aug-2025.md) |
+| 06-Sep-2025: | [The True Story of the 4 Fallen Angels Chained in the River Euphrates](lesson-06-Sep-2025.md) |

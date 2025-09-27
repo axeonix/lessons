@@ -19,19 +19,16 @@
 > “For God will bring every deed into judgment, including every hidden thing, whether it is good or evil.” 
 
 - What if in that moment, God said: “I gave you talents, gifts, and opportunities...but you never reached your full potential. 
-- What if he said:  "I whispered to you — that still small voice — Telling you over and over again: There is more to life than this. But you ignored Me. You chose a life I never designed for you.”
+- What if He said:  "I whispered to you — that still small voice — Telling you over and over again: There is more to life than this. But you ignored Me. You chose a life I never designed for you.”
 - Some of you hearing this will never become the person God created you to be. 
 - Not because He didn't give you the chance, But because you refused to answer the call.
 - God has already placed potential inside you. 
 
 I want to remind you that:
-- You are not an accident.
-- You are not here by chance.
-- The odds of you even being born were 1 in 400 trillion.
-- And that doesn’t even consider the chances of your parents meeting.
+- You are not an accident and you are not here by chance.
+- The odds of you even being born were 1 in 400 trillion and that doesn’t even consider the chances of your parents meeting.
 - You have a better chance of being struck by lightning...than simply existing.
-- Don’t dare believe the lie that you don’t matter. 
-- Don’t ever say your life has no purpose. You are here because God chose you.
+- Don’t dare believe the lie that you don’t matter and don’t ever say your life has no purpose. You are here because God chose you.
 
 ## Proving this through passages from God's Word:
 
@@ -42,17 +39,16 @@ I want to remind you that:
 
 - Here in Jeremiah we learn some amazing things about ourselves before we were even born
 - We learn that:
-  - God knew us before we were even formed in the womb. 
+  - God knew us before we were even formed in our mother's womb. 
   - He sanctified us. Meaning He set us apart BEFORE we were even born.
-  - He ordained us. 
-  - This means He called us to a life of purpose. 
+  - He ordained us...meaning that He called us to a life of purpose. 
 - This is why we never felt like we fully fit in — because we were never meant to blend in. 
 - We were called to stand out.
 
 ### Nazia please read:
 
 **Exodus 9:16** 
->“But I have raised you up for this very purpose, that I might show you My power.”
+> “But I have raised you up for this very purpose, that I might show you My power.”
 
 - Everything God creates has a purpose:
   - Every tree, every bird, every star in the sky…

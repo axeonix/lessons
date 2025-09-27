@@ -111,10 +111,9 @@ Here in **2 Timothy 1:9** the verse reinforces WHAT God’s call in our life is 
 - No one sees the world like you. No one thinks like you.
 - You were uniqely called to do what you were purposed to do. 
 
-## But here’s the tragedy:
+## Conclusions From These Passages
 
-- Even if you don’t believe what I’m saying you still know it’s true. 
-- Deep down, there’s a voice inside you that agrees. We just suppress it. 
+- Even if you don’t believe what has been stated here...we know it is still true. Deep down, there’s a voice inside you that agrees. We just suppress it. 
 - You were sent from eternity into time to fulfill a purpose only you can fulfill.
 - But many today believe the lie that to fulfill their purpose they must be rich, famous, or status in the eyes of the world. 
 - That’s NOT true.

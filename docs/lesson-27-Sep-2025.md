@@ -18,8 +18,8 @@
 **Ecclesiastes 12:14**
 > “For God will bring every deed into judgment, including every hidden thing, whether it is good or evil.” 
 
-- What if in that moment, God said: “I gave you talents, gifts, and opportunities...but you never reached your full potential. 
-- What if He said:  "I whispered to you — that still small voice — Telling you over and over again: There is more to life than this. But you ignored Me. You chose a life I never designed for you.”
+- What if in that moment, God said: “I gave you talents, gifts, and opportunities...but you never reached your full potential." 
+- What if He said:  "I whispered to you — telling you over and over again: There is more to life than this. But you ignored Me. You chose a life I never designed for you.”
 - Some of you hearing this will never become the person God created you to be. 
 - Not because He didn't give you the chance, But because you refused to answer the call.
 - God has already placed potential inside you. 
@@ -30,9 +30,7 @@ I want to remind you that:
 - You have a better chance of being struck by lightning...than simply existing.
 - Don’t dare believe the lie that you don’t matter and don’t ever say your life has no purpose. You are here because God chose you.
 
-## Proving this through passages from God's Word:
-
-### Nazia please read:
+## Proving this from God's Word
 
 **Jeremiah 1:5** 
 > “Before I formed you in the womb I knew you, before you were born I set you apart.”
@@ -44,8 +42,6 @@ I want to remind you that:
   - He ordained us...meaning that He called us to a life of purpose. 
 - This is why we never felt like we fully fit in — because we were never meant to blend in. 
 - We were called to stand out.
-
-### Nazia please read:
 
 **Exodus 9:16** 
 > “But I have raised you up for this very purpose, that I might show you My power.”
@@ -63,8 +59,6 @@ I want to remind you that:
     - Rejection can’t stop you.
     - Obstacles can’t stop you.
 
-### Nazia please read:
-
 **1 Peter 2:9**  
 > But you are a chosen people, a royal priesthood, a holy nation, God’s special possession, that you may declare the praises of him who called you out of darkness into his wonderful light.
 
@@ -75,8 +69,6 @@ I want to remind you that:
   - **Royal Priesthood**: They hold both the honor of royalty and the role of priests — serving, worshiping, and having direct access to God.
   - **Holy Nation**: Christians form a distinct, sacred community set apart for God’s purposes.
   - **God’s Special Possession**: They are deeply valued and belong to God.
-
-### Nazia please read:
 
 **Ephesians 1:4-6**
 > For he chose us in him before the creation of the world to be holy and blameless in his sight. In love He predestined us for adoption to sonship through Jesus Christ, in accordance with his pleasure and will — to the praise of his glorious grace, which he has freely given us in the One he loves.
@@ -89,8 +81,6 @@ I want to remind you that:
 - In LOVE He predestined us for adoption to sonship and daughtership through Jesus Christ
 - This in accordance with his good pleasure and will
 
-### Nazia please read:
-
 **2 Timothy 1:9**
 > “He has saved us and called us to a holy calling, not according to our works, but according to His own purpose and grace, which was given to us in Christ Jesus before time began.”
 
@@ -98,8 +88,6 @@ Here in **2 Timothy 1:9** the verse reinforces WHAT God’s call in our life is 
 - It say here it is based on His purpose and grace
 - It says it is NOT based on anything we’ve done
 - And it says that it was granted to us before time began.
-
-### Nazia please read:
 
 **1 Peter 1:2**
 > “who have been chosen according to the foreknowledge of God the Father, through the sanctifying work of the Spirit, to be obedient to Jesus Christ and sprinkled with his blood...”

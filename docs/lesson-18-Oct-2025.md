@@ -1,4 +1,4 @@
-# 18-Oct-2025: 25 Minutes In Heaven | You Won't Believe What Is There
+# 18-Oct-2025: 25 Minutes In Heaven: You Won't Believe What Is There
 
 **Opening Prayer**
 

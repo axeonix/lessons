@@ -19,3 +19,5 @@
 | 06-Sep-2025: | [The True Story of the 4 Fallen Angels Chained in the River Euphrates](lesson-06-Sep-2025.md) |
 | 27-Sep-2025: | [Why God created Humans: You Were Born for More](lesson-27-Sep-2025.md) |
 | 18-Oct-2025: | [25 Minutes In Heaven: You Won't Believe What Is There](lesson-18-Oct-2025.md) |
+| 25-Oct-2025: | [What Does Your House Look Like in the Spirit Realm](lesson-25-Oct-2025.md) |
+

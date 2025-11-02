@@ -20,4 +20,4 @@
 | 27-Sep-2025: | [Why God created Humans: You Were Born for More](lesson-27-Sep-2025.md) |
 | 18-Oct-2025: | [25 Minutes In Heaven: You Won't Believe What Is There](lesson-18-Oct-2025.md) |
 | 25-Oct-2025: | [What Does Your House Look Like in the Spirit Realm](lesson-25-Oct-2025.md) |
-
+| 01-Nov-2025: | [The Beginning Of Forever (Revelations 7)](lesson-01-Nov-2025.md) |

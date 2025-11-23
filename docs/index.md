@@ -1,6 +1,6 @@
 
 | Date | Subject |
-| 29-Mar-2025: | [Generosity (2 Corinthians 8:1-15)](lesson-29-Mar-2025.md) |
+ 29-Mar-2025: | [Generosity (2 Corinthians 8:1-15)](lesson-29-Mar-2025.md) |
 | 19-Apr-2025: | [Being a Living Sacrifice for God (Romans 12:1-2)](lesson-19-Apr-2025.md) |
 | 03-May-2025: | [Trusting in God's Timing (Numbers 20:10–12)](lesson-03-May-2025.md) |
 | 17-May-2025: | [Getting to Know the Power of the Holy Spirit](lesson-17-May-2025.md) |
@@ -21,3 +21,6 @@
 | 18-Oct-2025: | [25 Minutes In Heaven: You Won't Believe What Is There](lesson-18-Oct-2025.md) |
 | 25-Oct-2025: | [What Does Your House Look Like in the Spirit Realm](lesson-25-Oct-2025.md) |
 | 01-Nov-2025: | [The Beginning Of Forever (Revelations 7)](lesson-01-Nov-2025.md) |
+| 08-Nov-2025: | [Do you want to see The Upper Room where Jesus and His Apostles had The Last Supper?](lesson-08-Nov-2025.md) |
+| 15-Nov-2025: | [Jesus is Separating His True Followers Now from the false followers (Matthew 25:31-46)](lesson-15-Nov-2025.md) |
+| 22-Nov-2025: | [Will You Know Your Loved Ones In Heaven or In Hell (Luke 16:19-31)](lesson-22-Nov-2025.md) |

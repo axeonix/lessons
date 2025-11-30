@@ -1,4 +1,4 @@
-# 29-Nov-2025: False Idols - The Real Truth Behind Idolatry: Many Christians Don't Know They Are Practicing This (Exodus 20:3-6)
+# 29-Nov-2025: False Idols & The Real Truth Behind Idolatry: Many Christians Don't Know They Are Practicing This (Exodus 20:3-6)
 
 **Opening Prayer**
 

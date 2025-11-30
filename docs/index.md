@@ -24,4 +24,4 @@
 | 08-Nov-2025: | [Do you want to see The Upper Room where Jesus and His Apostles had The Last Supper?](lesson-08-Nov-2025.md) |
 | 15-Nov-2025: | [Jesus is Separating His True Followers Now from the false followers (Matthew 25:31-46)](lesson-15-Nov-2025.md) |
 | 22-Nov-2025: | [Will You Know Your Loved Ones In Heaven or In Hell (Luke 16:19-31)](lesson-22-Nov-2025.md) |
-| 29-Nov-2025: | [False Idols - The Real Truth Behind Idolatry: Many Christians Don't Know They Are Practicing This (Exodus 20:3-6)](lesson-29-Nov-2025.md) |
+| 29-Nov-2025: | [False Idols & The Real Truth Behind Idolatry: Many Christians Don't Know They Are Practicing This (Exodus 20:3-6)](lesson-29-Nov-2025.md) |

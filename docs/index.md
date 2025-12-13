@@ -18,6 +18,7 @@
 | 23-Aug-2025: | [What They Don't Want You To Know About a Seared Conscience (Romans 8:1-17)](lesson-2025-08-23.md) |
 | 30-Aug-2025: | [What Does It Mean To Fear God?](lesson-2025-08-30.md) |
 | 06-Sep-2025: | [The True Story of the 4 Fallen Angels Chained in the River Euphrates](lesson-2025-09-06.md) |
+| 20-Sep-2025: | [In His Presence](lesson-2025-09-20.md) |
 | 27-Sep-2025: | [Why God created Humans: You Were Born for More](lesson-2025-09-27.md) |
 | 11-Oct-2025: | [God Has Given You Supernatural Authority](lesson-2025-10-11.md) |
 | 18-Oct-2025: | [25 Minutes In Heaven: You Won't Believe What Is There](lesson-2025-10-18.md) |

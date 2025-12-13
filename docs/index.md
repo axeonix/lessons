@@ -1,7 +1,7 @@
 
 | Date | Subject |
-|======|=========|
- 29-Mar-2025: | [Generosity (2 Corinthians 8:1-15)](lesson-2025-03-29.md) |
+| ====== | ========= |
+| 29-Mar-2025: | [Generosity (2 Corinthians 8:1-15)](lesson-2025-03-29.md) |
 | 19-Apr-2025: | [Being a Living Sacrifice for God (Romans 12:1-2)](lesson-2025-04-19.md) |
 | 03-May-2025: | [Trusting in God's Timing (Numbers 20:10–12)](lesson-2025-05-03.md) |
 | 17-May-2025: | [Getting to Know the Power of the Holy Spirit](lesson-2025-05-17.md) |
@@ -19,7 +19,7 @@
 | 30-Aug-2025: | [What Does It Mean To Fear God?](lesson-2025-08-30.md) |
 | 06-Sep-2025: | [The True Story of the 4 Fallen Angels Chained in the River Euphrates](lesson-2025-09-06.md) |
 | 27-Sep-2025: | [Why God created Humans: You Were Born for More](lesson-2025-09-27.md) |
-| 11-Oct-2025: | [God Has Given You Supernatural Authority](lesson-2025-10-18.md) |
+| 11-Oct-2025: | [God Has Given You Supernatural Authority](lesson-2025-10-11.md) |
 | 18-Oct-2025: | [25 Minutes In Heaven: You Won't Believe What Is There](lesson-2025-10-18.md) |
 | 25-Oct-2025: | [What Does Your House Look Like in the Spirit Realm](lesson-2025-10-25.md) |
 | 01-Nov-2025: | [The Beginning Of Forever (Revelations 7)](lesson-2025-11-01.md) |

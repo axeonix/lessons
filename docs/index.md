@@ -33,3 +33,4 @@
 | 17-Jan-2026: | [Stop Gambling With Borrowed Time](lesson-2026-01-17.md) |
 | 24-Jan-2026: | [The Incredible Truth About Your Protection](lesson-2026-01-24.md) |
 | 31-Jan-2026: | [Dangerous Men Under A Holy King](lesson-2026-01-31.md) |
+| 07-Feb-2026: | [Women and the girls Designed and Created by God](lesson-2026-02-07.md) |

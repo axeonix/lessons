@@ -29,4 +29,7 @@
 | 22-Nov-2025: | [Will You Know Your Loved Ones In Heaven or In Hell (Luke 16:19-31)](lesson-2025-11-22.md) |
 | 29-Nov-2025: | [False Idols & The Real Truth Behind Idolatry: Many Christians Don't Know They Are Practicing This (Exodus 20:3-6)](lesson-2025-11-29.md) |
 | 06-Dec-2025: | [The Truth About the 144,000 in the Book of Revelation](lesson-2025-12-06.md) |
-
+| 10-Jan-2026: | [The Book of Revelation and The Promises of God](lesson-2026-01-10.md) |
+| 17-Jan-2026: | [Stop Gambling With Borrowed Time](lesson-2026-01-17.md) |
+| 24-Jan-2026: | [The Incredible Truth About Your Protection](lesson-2026-01-24.md) |
+| 31-Jan-2026: | [Dangerous Men Under A Holy King](lesson-2026-01-31.md) |

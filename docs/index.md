@@ -36,6 +36,7 @@
 | 07-Feb-2026: | [Women and Girls Designed and Created by God](lesson-2026-02-07.md) |
 | 12-Sep-2026: | [Above All Else Guard Your Heart (Proverbs 4:23)](lesson-2026-09-12.md) |
 | 10-Oct-2026: | [Queen Esther: For Such a Time as This (Esther 4:14)](lesson-2026-10-10.md) |
+| 17-Oct-2026: | [Many Are Called But Few Are Chosen (Matthew 22:14)](lesson-2026-10-17.md) |
 
 
 

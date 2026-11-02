@@ -38,6 +38,7 @@
 | 10-Oct-2026: | [Queen Esther: For Such a Time as This (Esther 4:14)](lesson-2026-10-10.md) |
 | 17-Oct-2026: | [Many Are Called But Few Are Chosen (Matthew 22:14)](lesson-2026-10-17.md) |
 | 24-Oct-2026: | [Do Not Wait Until Midnight: The Parable of the Ten Virgins (Matthew 25:1-13)](lesson-2026-10-24.md) |
+| 30-Oct-2026: | [If God Already Knows Your Future, Do You Really Have Free Will?](lesson-2026-10-30.md) |
 
 
 

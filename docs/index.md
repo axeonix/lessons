@@ -42,6 +42,7 @@
 | 07-Nov-2026: | [Jacob’s Ladder: The Angels Are Watching – You Are Not Alone (Genesis 28:16)](lesson-2026-11-07.md) |
 | 14-Nov-2026: | [The Books of Heaven: What Has God Written About Your Life?](lesson-2026-11-14.md) |
 | 21-Nov-2026: | [Growing Together, Not Apart (Ecclesiastes 4:9-12)](lesson-2026-11-21.md) |
+| 28-Nov-2026: | [The End of the Age: Armor Up and Guard Your Conscience (1 Timothy 4:1-2)](lesson-2026-11-28.md) |
 
 
 
